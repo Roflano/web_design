@@ -1,1 +1,1 @@
-# web_design
+I like that nowadays people put a big focus on an individual approach when picking any specialists, including web design studios. There are top lists, there are really a lot of great companies, but I think [my review here](https://www.lazarev.agency/articles/san-francisco-web-design-agencies) isn’t super useful because the specialists I clicked with might not fit you at all. So it’s all personal experience, through consultations and discussions.
